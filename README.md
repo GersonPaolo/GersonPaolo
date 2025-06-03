@@ -2,7 +2,7 @@
 
 I ❤️ learning every day!
 
-:computer: Junior Programmer, 8th year Systems Engineering and Computer Science student
+:computer: Junior Programmer, 3th year Systems Engineering and Computer Science student
 
 :vulcan_salute: I love Pokemon, League of Legends, soccer, and listening to music
 
