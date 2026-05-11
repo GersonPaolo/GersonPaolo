@@ -1,4 +1,4 @@
-# 𝗛𝗲𝗹𝗹𝗼! 𝗜'𝗺 Gerson Paolo Stefano Pimentel Abad
+# 𝗛𝗲𝗹𝗹𝗼! 𝗜'𝗺 Gerson
 
 I ❤️ learning every day!
 
