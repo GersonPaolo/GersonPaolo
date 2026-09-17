@@ -2,9 +2,9 @@
 
 I ❤️ learning every day!
 
-:computer: Junior Programmer, 4th year Systems Engineering and Computer Science student
+:computer: Junior Programmer, 10th year Systems Engineering and Computer Science student
 
-:vulcan_salute: I love Pokemon, League of Legends, soccer, and listening to music
+:vulcan_salute: I love Pokemon, League of Legends, soccer, and listeng to music
 
 :writing_hand: I like responsibility, punctuality, achieving group goals, and respect
 ## 𝗠𝘆 𝗧𝗲𝗰𝗸 𝗦𝘁𝗮𝗰𝗸
